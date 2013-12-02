@@ -2,4 +2,5 @@
 ===============
 
 - 09/07/1995 Born
-- 20/10/2011-~ Relationship with Katherine
+- 06/2011-~ Internship at Fanzter
+- 20/10/2012-~ Relationship with Katherine
